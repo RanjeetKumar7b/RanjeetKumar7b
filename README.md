@@ -8,7 +8,7 @@
 - 💬 Ask me about **C++, DSA , OS, DBMS, OOPS, JAVASCRIPT, REACT JS, NODE JS, EXPRESS JS, MYSQL, MONGO DB, REST API**
 
 - 📫 How to reach me **rk2505152@gmail.com**
-- [Resume](https://drive.google.com/file/d/1B4PQpVrehETpIAk47AZ-0RTMTSw-lJYd/view?usp=sharing)
+- Know about myself:- [Resume](https://drive.google.com/file/d/1B4PQpVrehETpIAk47AZ-0RTMTSw-lJYd/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
